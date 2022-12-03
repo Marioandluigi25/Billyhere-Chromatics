@@ -1,4 +1,4 @@
-# My-Chromatics
+#Billyhere-Chromatics
 
 This has all of my chromatics that I have shown to the public + 2 more
 
