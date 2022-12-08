@@ -1,7 +1,5 @@
-Billyhere's Chromatics
+THERE ARE ASSETS THAT I MADE FOR THE VTUBERS
 
-This has all of my chromatics that I have shown to the public + 2 more
+https://drive.google.com/drive/folders/1Vkp0L8ddNEhPbo0cSo8Sh2A6mi1oGfMp?usp=sharing
 
-Iron Mouse, ChibiDoki, Nyanners, The Boys, Cartoon characters, Me and my friends and more
-
-If you use then credit me
+PLEASE CREDIT ME IF YOU USE!!!
